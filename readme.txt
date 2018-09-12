@@ -1,0 +1,1 @@
+This tool can help you get some extra traffic for your website. It's easy to use.
